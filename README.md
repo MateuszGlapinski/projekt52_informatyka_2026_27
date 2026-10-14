@@ -1,5 +1,5 @@
 # projekt52_informatyka_2026_27
-Two cool projects :)))) note- Might be more in the future
+Two cool projects :)))) note- Might be more in the future yes yes yes
 
 # [Tytuł projektu] 
 Autor: [Mateusz Glapiński] 
